@@ -1,5 +1,3 @@
-# Ines Rodrigues
+# Inês Rodrigues
 
-------------
-
-### The girl who knows everything
+The girl who knows everything
